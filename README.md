@@ -1,2 +1,2 @@
 ## Welcome to my page
-More to follow here regarding work experience and research
+For updates about research and industry experience, visit my site at [jeanpierrevanzyl.githu.io](jeanpierrevanzyl.github.io)
